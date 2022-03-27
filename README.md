@@ -24,7 +24,7 @@ used framework
 
 - 📫 How to reach me ...
 
-        ehdcks112@gmail.com or +82 10 6361 5524
+        ehdcks112@naver.com or +82 10 6361 5524
         
 
 
